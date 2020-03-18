@@ -11,7 +11,9 @@ COVID-19 Donation — Hunt Key Sinners[2020]
 The Chinese new crown virus has caused great harm to all human beings. At least tens of thousands of people have died of the virus, and more people will die. This has caused catastrophic disasters to the global economy and people's livelihood. Many families lost loved ones, many people lost jobs, and large number of companies lost money or even gone bankrupt.The epidemic was caused by Chinese accidents, early Chinese government departments intentionally concealed the true epidemic from the people, failed to take corrective treatment and protection measures in a timely manner, missed the best opportunity, and allowed people to spread infection, which eventually turned into a very serious epidemic and economic crisis worldwide. We request people all over the world to donate bounties for hunting down the key sinners. Come on, everyone donate a little bit, can bring your anger and grief into a huge energy of justice, act as agent for Heaven, execute heaviest punishment to sinners who committed heinous crime, go to the hell
 
 "COVID-19 Donation — Hunt Key Sinners[2020].pdf"，Sinners and Donation
-
 "COVID-19 Donation — Hunt Key Sinners[2020].pdf.sig"， GPG signature
+Justice_PUBLIC_KEY.asc, the public key
 
-Justice_PUBLIC_KEY.asc, the public key.
+加入我们,  Telegram 群 "诛新冠病毒罪人"                   https://t.me/COVID19HuntCN
+Join us, Telegram Group "Hunt COVID19 Key Sinners"     https://t.me/COVID19HuntEN
+Email Contact : wefightforjustice@protonmail.com
