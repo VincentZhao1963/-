@@ -18,4 +18,4 @@ Justice_PUBLIC_KEY.asc, the public key
 
 Join us, Telegram Group "Hunt COVID19 Key Sinners"     https://t.me/COVID19HuntEN
 
-Email Contact : wefightforjustice@protonmail.com
+Email Contact wefightforjustice@protonmail.com
